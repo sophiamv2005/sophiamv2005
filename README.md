@@ -1,0 +1,8 @@
+- 🔭 Atualmente estou trabalhando em tecnologias
+- 🌱 Atualmente estou aprendendo a ser técnico de informática
+- 👯 Estou procurando colaborar em tecnologia da informática
+- 🤔 Estou procurando ajuda com a tecnologia em informática
+- 💬 Pergunte-me sobre informática
+- 📫 Como entrar em contato comigo: por email em sophia.vilanova@aluno.enova.educacao.ba.gov.br
+- 😄 Pronomes: ela/dela
+- ⚡ Curiosidade: em areas da informática, adorar animais e adoro fotografia 
